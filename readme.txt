@@ -1,1 +1,3 @@
 Abc
+pataisymai: ;)
+Oi dar
